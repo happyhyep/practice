@@ -4,5 +4,4 @@
 andy comes here and go out
 안뇽~~
 
-미키샘과 함께라면 깃도 어렵지 않아용~
-
+깃은 상당히 구찮네~!
