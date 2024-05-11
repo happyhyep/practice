@@ -21,3 +21,6 @@ andy comes here and go out
 여기다 수정하는거 맞나?!?
 해시 깃 업로드합니다 후후
 andy 도 여기에 왔다감..VI editor 명령어 보면서 구기적 구기적 5.11 7:42
+
+
+ㅁㅁ 
