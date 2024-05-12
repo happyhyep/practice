@@ -23,3 +23,4 @@ andy comes here and go out
 andy 도 여기에 왔다감..VI editor 명령어 보면서 구기적 구기적 5.11 7:42
 
 오늘은 깃풀했습니다~ _래드
+여기가 코멘트 인가요???
